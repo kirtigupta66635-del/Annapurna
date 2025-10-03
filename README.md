@@ -3,7 +3,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=ㅤ+𝚆𝙴𝙻𝙲𝙾𝙼𝙴+𝚃𝙾+𝙰𝙽𝙽𝙰𝙿𝚄𝚁𝙽𝙰+𝙼𝚄𝚂𝙸𝙲+𝚁𝙴𝙿𝙾+;ㅤ+𝚃𝙷𝙸𝚂+𝙸𝚂+𝙰+𝙰𝙳𝚅𝙰𝙽𝙲𝙴+𝙼𝚄𝚂𝙸𝙲+𝙱𝙾𝚃;𝙿𝙾𝚆𝙴𝚁𝙴𝙳+𝙱𝚈+☞+𝗧𝗛𝗘+𝗧𝗘𝗔𝗠+𝐀𝐧𝐧𝐚𝐩𝐮𝐫𝐧𝐚)](https://github.com/kirtigupta66635-del/Annapurna.git)    
 
 <p align="center">   
- <img src="https://files.catbox.moe/e449mo.jpg"> 
+ <img src=""> 
 </p>    
 
 ![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗙𝗢𝗥𝗞+𝗧𝗛𝗜𝗦+𝗥𝗘𝗣𝗢+𝗕𝗘𝗙𝗢𝗥𝗘+𝗗𝗘𝗣𝗟𝗢𝗬)  
@@ -31,7 +31,7 @@ sᴏ ᴜsᴇ ʏᴏᴜʀ ᴀɴʏ ᴏᴛʜᴇʀ ɪ'ᴅ sᴇssɪᴏɴ 👈🏻
 </p>  
 
 <p align="center"> 
- <a href="https://telegram.me/Your_Username"><img src="https://img.shields.io/badge/-☆𝐃𝐌 𝐓𝐎 𝐀𝐍𝐍𝐀𝐏𝐔𝐑𝐍𝐀☆-blue.svg?style=for-the-badge&logo=Telegram"></a> 
+ <a href="https://telegram.me/GOODCHEAT01"><img src="https://img.shields.io/badge/-☆𝐃𝐌 𝐓𝐎 𝐀𝐍𝐍𝐀𝐏𝐔𝐑𝐍𝐀☆-blue.svg?style=for-the-badge&logo=Telegram"></a> 
 </p>  
 
 <h3 align="center">     ─「 ᴅᴇᴩʟᴏʏ ᴏɴ ʟᴏᴄᴀʟ ʜᴏsᴛ/ ᴠᴘs 」─ </h3>  
